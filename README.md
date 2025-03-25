@@ -1,1 +1,1 @@
-# zaliczenie_1
+# Vladyslav Petukhov
